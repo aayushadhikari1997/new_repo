@@ -1,1 +1,1 @@
-Champawat
+Champawat is a district
