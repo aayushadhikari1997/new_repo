@@ -1,1 +1,1 @@
-Champawat is a new district
+Champawat is a new town
